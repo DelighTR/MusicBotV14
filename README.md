@@ -1,3 +1,1 @@
-# MusicBotV14
-
-Bot @UmutXyp tarafından yapılmıştır, kullanırken UmutXyp den alın.
+Delight Tarafından Yapılmıştır Paylaşmak Yasaktır... 20/02/23
